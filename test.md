@@ -1,5 +1,5 @@
 Information.
 
-Khajits cute.git
+Khajits cute.
 
 Watermelons are green.
